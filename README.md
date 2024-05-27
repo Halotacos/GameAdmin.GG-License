@@ -1,0 +1,1 @@
+# GameAdmin.GG-License
